@@ -53,8 +53,6 @@ That's about it. Not much, might add more l8ter.
 
 ### - Pony.town stuff -
 
-First off, I know my Loser pony looks nothing like Loser, I just like the way it looks!! :3
-
 If I'm on PT, I'm usually by my friends. If I'm not, I'm probably looking for more friends / people that like the same things I do,,,
 
 Please don't cover my ponies up!! I like to be seen.
