@@ -13,7 +13,7 @@ I use any pronouns!! Mostly just they / it / he + xenos ( ask me if you want to 
 
 I use tone indicators!!
 
-I <3 making friends and whenever I get a friend req. I'll almost always accept it so feel free to friend me if you want to ^^
+I love making friends and whenever I get a friend req. I'll almost always accept it so feel free to friend me if you want to ^^
 
 Feel free to ask for my other socials (I have Discord, VRChat, a Nintendo Switch, a Playstation [PS4,,*sobs*], ROBLOX, and more..*giggles*)
 
@@ -57,7 +57,9 @@ If I'm on PT, I'm usually by my friends. If I'm not, I'm probably looking for mo
 
 Please don't cover my ponies up!! I like to be seen.
 
-I often space myself out from people when I feel unwanted, rejected, left out, whatever you call it. Feel free to talk to me when I do this, though I might not always uhhhhhh answer.
+I love talking to people, feel free to whisper me if you wanna talk or just come up to me (except if i'm sleeping i'm afk)
+
+I often space myself out from people when I feel unwanted, rejected, left out, whatever you call it. 
 
 ---
 
