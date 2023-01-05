@@ -9,7 +9,7 @@ I'm Irish (GMT timezone,,, *sweats,,,*) EVERYONE I KNOW IS AMERICAN and im like 
 
 I created a whole github profile just to tell people about myself on pony.town,,, lol
 
-I use any pronouns!! Mostly just they / it / he + xenos
+I use any pronouns!! Mostly just they / it / he + xenos ( ask me if you want to know what they are!! :D )
 
 I use tone indicators!!
 
