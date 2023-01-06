@@ -15,7 +15,7 @@ I use tone indicators!!
 
 I love making friends and whenever I get a friend req I'll almost always accept it so feel free to friend me if you want to ^^
 
-Feel free to ask for my other socials (I have Discord, VRChat, a Nintendo Switch, a Playstation [PS4], ROBLOX, and more,,)
+Feel free to ask for my other socials (I have Discord (SpaceySpiral#4384), VRChat, a Nintendo Switch, a Playstation [PS4], ROBLOX, and more,,)
 
 ---
 
@@ -44,7 +44,7 @@ That's about it. Not much, might add more l8ter.
 ---
 
 ### - INT list :D -
-- Object show fans / people in the osc!!
+- Object show fans/people in the osc!!
 - Furries!! (not the weird ones,, you know who you are.)
 - Cake IRLs,,, *bats my little Loser eyelashes /p*
 - People that use tone indicators!!
