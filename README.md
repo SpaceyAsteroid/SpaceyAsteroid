@@ -3,19 +3,19 @@
 ### - ABOUT ME!! -
 HI HI I'm SpaceyAsteroid but just go by Spacey, Asteroid, or Loser!!
 
-I'm a Loser IRL (giggles)
+I'm a Loser IRL
 
-I'm Irish (GMT timezone,,, *sweats,,,*) EVERYONE I KNOW IS AMERICAN and im like so far ahead of them *sobs violently.*
+I'm Irish (GMT timezone,,, *sweats,,,*) but only speak English. EVERYONE I KNOW IS AMERICAN and im like so far ahead of them.
 
-I created a whole github profile just to tell people about myself on pony.town,,, lol
+I created a whole github profile just to tell people about myself on pony.town :D
 
-I use any pronouns!! Mostly just they / it / he + xenos ( ask me if you want to know what they are!! :D )
+I use any pronouns!! Mostly just they/it/he + xenos (ask me if you want to know what they are!!)
 
 I use tone indicators!!
 
-I love making friends and whenever I get a friend req. I'll almost always accept it so feel free to friend me if you want to ^^
+I love making friends and whenever I get a friend req I'll almost always accept it so feel free to friend me if you want to ^^
 
-Feel free to ask for my other socials (I have Discord, VRChat, a Nintendo Switch, a Playstation [PS4,,*sobs*], ROBLOX, and more..*giggles*)
+Feel free to ask for my other socials (I have Discord, VRChat, a Nintendo Switch, a Playstation [PS4], ROBLOX, and more,,)
 
 ---
 
@@ -36,8 +36,8 @@ Feel free to ask for my other socials (I have Discord, VRChat, a Nintendo Switch
 
 ### - Little DNI list -
 - Basic DNI stuff (homophobic, transphobic, racist, stuff like that ykyk)
-- Proshippers (proshitters.)
-- Zoophiles (ew.)
+- Proshippers
+- Zoophiles
 
 That's about it. Not much, might add more l8ter.
 
@@ -45,9 +45,9 @@ That's about it. Not much, might add more l8ter.
 
 ### - INT list :D -
 - Object show fans / people in the osc!!
-- Furries!! (not the weird ones,, you know who you are *shudders,,,*)
+- Furries!! (not the weird ones,, you know who you are.)
 - Cake IRLs,,, *bats my little Loser eyelashes /p*
-- People that use tone indicators!! (Personally, I like tone indicators and find them really helpful!!)
+- People that use tone indicators!!
 
 ---
 
@@ -66,18 +66,3 @@ I often space myself out from people when I feel unwanted, rejected, left out, w
 ### THANKS FOR TAKING THE TIME TO READ THIS ^^
 
 ---
-
-<!--
-**SpaceyAsteroid/SpaceyAsteroid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
