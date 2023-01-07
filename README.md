@@ -17,7 +17,7 @@ I use tone indicators!!
 
 I love making friends and whenever I get a friend req I'll almost always accept it so feel free to friend me if you want to ^^ ( I might miss some since I'm off tab/afk alot :( )
 
-Feel free to ask for my other socials (I have Discord (SpaceySpiral#4384), VRChat, a Nintendo Switch, a Playstation [PS4], ROBLOX, and more,,)
+Feel free to ask for my other socials (I have Discord (SpaceySpiral#4384, I won't accept friend requests on Discord unless I know who you are, ask me before you friend me/tell me your tag idk), VRChat, a Nintendo Switch, a Playstation [PS4], ROBLOX, and more,,)
 
 ---
 
