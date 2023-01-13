@@ -11,7 +11,7 @@ I'm Polysexual, Polyamorous, and Genderfluid (plus xenogenders)
 
 I created a whole github profile just to tell people about myself on pony.town :D
 
-I use any pronouns!! Mostly just they/it/he + xenos (ask me if you want to know what they are!!)
+Ask for my pronouns since they change like,,, everyday (*bats my little genderfluid eyelashes*)
 
 I use tone indicators!!
 
