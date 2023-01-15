@@ -24,6 +24,7 @@ Feel free to ask for my other socials (I have Discord (SpaceySpiral#4384, I won'
 ### - Interests!! (in order from what I like most to ehhh) -
 - Object Shows (Hyperfixation at the moment!!)
 - Wii Deleted You
+- FNaF / DSaF
 - FNF VS Dave and Bambi (mostly Golden Apple and Popcorn edition)
 - Spooky Month
 - Eddsworld
