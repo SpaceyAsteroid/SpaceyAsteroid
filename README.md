@@ -62,7 +62,7 @@ Please don't cover my ponies up!! I like to be seen.
 
 I love talking to people, feel free to whisper me if you wanna talk or just come up to me (except if i'm sleeping i'm afk)
 
-I often space myself out from people when I feel unwanted, rejected, left out, whatever you call it. 
+I often space myself from people when I feel unwanted or left out.
 
 ---
 
