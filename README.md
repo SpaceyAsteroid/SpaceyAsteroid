@@ -32,7 +32,7 @@ Feel free to ask for my other socials (I have Discord (SpaceySpiral#4384, I won'
 - South Park
 - My Singing Monsters
 - AJR and Gorillaz (bands)
-- Computers/Technology, Space, and Art in general :D
+- Computers, Technology, and Space in general :D
 - BATIM (somewhat?? not really into it as much as i used to be,,)
 - Walten Files (same as BATIM,, not into it as much)
 
