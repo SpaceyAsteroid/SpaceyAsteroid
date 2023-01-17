@@ -32,6 +32,7 @@ Feel free to ask for my other socials (I have Discord (SpaceySpiral#4384, I won'
 - South Park
 - My Singing Monsters
 - AJR and Gorillaz (bands)
+- Computers/Technology, Space, and Art in general :D
 - BATIM (somewhat?? not really into it as much as i used to be,,)
 - Walten Files (same as BATIM,, not into it as much)
 
@@ -41,6 +42,7 @@ Feel free to ask for my other socials (I have Discord (SpaceySpiral#4384, I won'
 - Basic DNI stuff (homophobic, transphobic, racist, stuff like that ykyk)
 - Proshippers
 - Zoophiles
+- Alfred's Playhouse fans
 
 That's about it. Not much, might add more l8ter.
 
