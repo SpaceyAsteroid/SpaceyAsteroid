@@ -5,7 +5,7 @@ HI HI I'm SpaceyAsteroid but just go by Spacey, Asteroid, or Loser!!
 
 I'm a Loser IRL
 
-I'm Irish (GMT timezone,,, *sweats,,,*) but only speak English. EVERYONE I KNOW IS AMERICAN and im like so far ahead of them.
+I'm Irish but only speak English.
 
 I'm Polysexual, Polyamorous, and Genderfluid (plus xenogenders)
 
